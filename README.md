@@ -1,3 +1,2 @@
-# My_Repository
-as the name
-nxwnzncwicw
+Go big or go home!
+Stay hungry, stay foolish.
